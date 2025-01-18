@@ -4,8 +4,5 @@ Her kan man finde vores ønskeliste, gæsteliste, og andet relevant information 
 # Ønskeliste
 TODO :D
 
-# Gæsteliste
-TODO :D
-
 # Bus information
 TODO :D
