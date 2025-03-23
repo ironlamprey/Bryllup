@@ -16,6 +16,12 @@ Eames stol, modellen DAW i plastik (Dining Height Armchair Wood Base), sort sæd
 
 MAC Pro 165 mm Nakiri kniv: https://foodgear.dk/products/mac-pro-nakiri-165mm 
 
+MAC Pro 240 mm Kokkekniv: https://foodgear.dk/products/mac-pro-kokkekniv-24cm
+
+MAC Pro 265 mm Brødkniv: https://foodgear.dk/products/mac-pro-brodkniv-26-5cm
+
+MAC Pro 80 mm Urtekniv: https://foodgear.dk/products/mac-pro-urtekniv-8cm
+
 Weber gasgrill
 
 # Bus information
