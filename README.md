@@ -14,5 +14,9 @@ Eva Trio Legio Nova Tallerkener, middags tallerken 25 cm, frokost tallerken 22cm
 
 Eames stol, modellen DAW i plastik (Dining Height Armchair Wood Base), sort sæde, mørk ahorn ben
 
+MAC Pro 165 mm Nakiri kniv: https://foodgear.dk/products/mac-pro-nakiri-165mm 
+
+Weber gasgrill
+
 # Bus information
 TODO :D
