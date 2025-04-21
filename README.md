@@ -59,12 +59,12 @@ Hvis man har knas med at nå bussen på dagen, så kontakt Ulrik på 40 83 96 76
 
 ## Venner
 - Rysgaard
-- Ida
+- Ida Fricke Jørgensen
 - Tversted
 - FUWA
 - FUIV
 - Bøllen
-- Mathilde
+- FUOM
 - Lærke Niclasen
 - FUES
 - Medic
