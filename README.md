@@ -34,7 +34,7 @@ Weber gasgrill
   - Institut for Datalogi, Åbogade
   - Musikhuset Thomas Jensens Allé 2, 8000 Aarhus
 ## Kontakt
-Hvis man har knas med at nå bussen på dagen, så kontakt Ulrik på 40 80 96 76
+Hvis man har knas med at nå bussen på dagen, så kontakt Ulrik på 40 83 96 76
 
 # Gæsteliste
 ## Familie
