@@ -28,6 +28,7 @@ Weber gasgrill
 ## Afgang 14:30 fra
   - Musikhuset Thomas Jensens Allé 2, 8000 Aarhus
   - Institut for Datalogi, Åbogade
+    
   Forventet ankomst ved Knudhule Badehotel - ca kl 15:30
 ## Afgang 01:30
   - Institut for Datalogi, Åbogade
