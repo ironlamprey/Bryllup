@@ -54,7 +54,7 @@ Hvis man har knas med at nå bussen på dagen, så kontakt Ulrik på 40 83 96 76
 - Steen
 - Dea
 - Kenneth
-- Alvind
+- Albin
 - Merethe
 
 ## Venner
@@ -78,6 +78,6 @@ Hvis man har knas med at nå bussen på dagen, så kontakt Ulrik på 40 83 96 76
 - Philip Tzannis
 - Sofie Kirk Nielsen
 - Line Hansen
-- HC
+- HC Tankred
 - Steffan Sølvsten
 - FULR
