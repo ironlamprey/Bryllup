@@ -25,4 +25,58 @@ MAC Pro 80 mm Urtekniv: https://foodgear.dk/products/mac-pro-urtekniv-8cm
 Weber gasgrill
 
 # Bus information
-TODO :D
+## Afgang 14:30 fra
+  . Musikhuset Thomas Jensens Allé 2, 8000 Aarhus
+  . Institut for Datalogi, Åbogade
+  Forventet ankomst ved Knudhule Badehotel - ca kl 15:30
+## Afgang 01:30
+  . Institut for Datalogi, Åbogade
+  . Musikhuset Thomas Jensens Allé 2, 8000 Aarhus
+## Kontakt
+Hvis man har knas med at nå bussen på dagen, så kontakt Ulrik på 40 80 96 76
+
+# Gæsteliste
+## Familie
+### Simons familie
+Nina
+Niels
+Louise
+Andreas
+Rikke
+Gerda
+Ejvind
+Tanja
+Eskild
+Esther
+### Majas familie
+Rikke
+Steen
+Dea
+Kenneth
+Alvind
+Merethe
+
+## Venner
+Rysgaard
+Ida
+Tversted
+FUWA
+FUIV
+Bøllen
+Mathilde
+Lærke
+FUES
+Medic
+Trelborg
+Bjarke
+Dyrmose
+Julie
+Frederikke
+Ulrik
+Johannes Ellemose
+Philip
+Sofie
+Line
+HC
+Steffan
+FULR
