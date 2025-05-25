@@ -81,3 +81,4 @@ Hvis man har knas med at nå bussen på dagen, så kontakt Ulrik på 40 83 96 76
 - HC Tankred
 - Steffan Sølvsten
 - FULR
+- Asger Klinkby
