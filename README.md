@@ -55,7 +55,7 @@ Hvis man har knas med at nå bussen på dagen, så kontakt Ulrik på 40 83 96 76
 - Dea
 - Kenneth
 - Albin
-- Merethe
+- Merete
 
 ## Venner
 - Rysgaard
